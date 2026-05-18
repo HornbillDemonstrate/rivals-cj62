@@ -1,4 +1,4 @@
-#  
+#  Atualizado bee swarm simulator scripts é o melhor bee swarm simulator scripts com vitória instantânea e acesso a servidor privado. Seguro, confiável e otimizado para máximo
 
 
 
